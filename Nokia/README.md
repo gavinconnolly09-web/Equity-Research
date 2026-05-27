@@ -1,4 +1,6 @@
 Nokia Equity Research Report
+Initial Publication Date: May 26, 2026
+Research Period: May 24 – May 26, 2026
 
 Sections Included:
 1. Company Overview
